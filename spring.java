@@ -4,8 +4,7 @@ sdflzxcvsmf'osjv
 sdvk;sv;sjajes
 sdjfzscsdf
 asfjlsdhdfilsakcs
-asjclznfwhedhiz
-csdhakscfkahef
+asjclznfwhedhi
 alshdac.sdmfa
 cnlamksclahsdoa
 xclahnsdlaz;sfkwpe
